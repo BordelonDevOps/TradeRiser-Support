@@ -26,3 +26,8 @@ Thank you for all of your patronage and help. I hope you learn as much about sto
 
 Chris
 
+Back to the Application 
+https://traderiser-ai-1-jeic.onrender.com/
+
+My Linkedin
+linkedin.com/in/christopher-b-b61554319
