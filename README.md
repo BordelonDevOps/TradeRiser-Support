@@ -30,5 +30,4 @@ Back to the Application
 https://traderiser-ai-1-jeic.onrender.com/
 
 My Linkedin
-
-linkedin.com/in/christopher-b-b61554319
+https://shorturl.at/leQag
